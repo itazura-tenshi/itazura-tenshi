@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**itazura-tenshi/itazura-tenshi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <img src="https://i.postimg.cc/jjGNYmjw/image.png" alt="will solace png">
+</p>
+<p align="center">
+  hi. i am the real will solace please look at my <a href="https://paris-of-troy.straw.page/">strawpage</a> and maybe my <a href="https://itazura-tenshi.atabook.org/">atabook</a> ok thanks
+</p>
+<p align="center">
+<details>
+    <summary>ponytown info</h3></summary>
+      <p>i don't really have a dni per se so i guess just don't befriend me if you fit the basic dni criteria</p>
+      <p>iwc: -14 or 25+, boyfriend to death fans</p>
+   <p>byi: usually with friends or roaming. i sometimes struggle with tone so tonetags would be appreciated. i respond best to whispers. c+h is usually ok just ask i guess. i can sometimes seem a little serious be not afraid i am nice i swear</p>
+ </details>
+</p>
