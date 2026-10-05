@@ -10,5 +10,6 @@
       <p>i don't really have a dni per se so i guess just don't befriend me if you fit the basic dni criteria</p>
       <p>iwc: -14 or 25+, boyfriend to death fans</p>
    <p>byi: usually with friends or roaming. i sometimes struggle with tone so tonetags would be appreciated. i respond best to whispers. c+h is usually ok just ask i guess. i can sometimes seem a little serious be not afraid i am nice i swear</p>
+  <p> thanKYOU SO MUCH SUNNY FOR GIVING ME THIS CODe. ouugh i'm naming my firstborn after you </p>
  </details>
 </p>
