@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/jjGNYmjw/image.png" alt="will solace png">
 </p>
 <p align="center">
-  hi. i am the real will solace please look at my <a href="https://paris-of-troy.straw.page/">strawpage</a> and maybe my <a href="https://itazura-tenshi.atabook.org/">atabook</a> ok thanks
+  hi. please look at my <a href="https://paris-of-troy.straw.page/">strawpage</a> and maybe my <a href="https://itazura-tenshi.atabook.org/">atabook</a> ok thanks
 </p>
 <p align="center">
 <details>
